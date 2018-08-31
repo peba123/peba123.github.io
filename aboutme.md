@@ -6,8 +6,8 @@ subtitle: Why you'd want to go on a date with me
 
 My name is Nick Knatterton. I have the following qualities:
 
-- I rock a great mustache
-- I'm extremely loyal to my family
+- I pay attention to detail
+- I'm always hungry
 
 What else do you need?
 
